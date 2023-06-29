@@ -1,1 +1,1 @@
-Paul Guamangallo - Valeria Alvarez - Natalia Fajardo - Angie Perez
+#Valeria Alvarez :smiley_cat:
