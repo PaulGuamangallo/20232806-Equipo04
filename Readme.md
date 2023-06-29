@@ -1,1 +1,1 @@
-Paul Guamangallo - Valeria Alvarez
+Paul Guamangallo - Valeria Alvarez - Natalia Fajardo
